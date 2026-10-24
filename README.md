@@ -33,7 +33,7 @@
 - 超大流量套餐：￥8 / 月付
 - 不限时套餐：￥25.99 一次性
 
-👉 [三毛机场注册入口](https://b.smjcgw.com/#/register?code=YgrqYslp)
+👉 [三毛机场注册入口](https://gw-2.smjc2.com/#/register?code=zP6hpbpa)
 
 ---
 
