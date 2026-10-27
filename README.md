@@ -33,7 +33,22 @@
 - 超大流量套餐：￥8 / 月付
 - 不限时套餐：￥25.99 一次性
 
-👉 [三毛机场注册入口](https://gw-2.smjc2.com/#/register?code=zP6hpbpa)
+👉 [三毛机场注册入口](https://a.wwaann.com/?s=smjc)
+
+---
+
+## 🌟 星辰VPN
+
+全球节点覆盖型服务。
+
+特点：
+
+- 51国家
+- 74节点
+- 高清视频体验
+- 不限设备
+
+👉 [星辰VPN注册入口](https://a.wwaann.com/?s=xcvpn)
 
 ---
 
@@ -49,7 +64,7 @@
 - ⚡ 高速线路
 - 🎁 签到赠送流量
 
-👉 [飞兔云注册入口](https://666.xn--h5qy75o.vip/#/register?code=wZDomyK1)
+👉 [飞兔云注册入口](https://a.wwaann.com/?s=feitucloud)
 
 ---
 
@@ -68,7 +83,7 @@
 
 - 500G套餐 ¥6.8起
 
-👉 [超悦机场注册入口](https://www.chaoyue.shop/#/register?code=IFP5Hc3D)
+👉 [超悦机场注册入口](https://a.wwaann.com/?s=chaoyue)
 
 ---
 
@@ -83,7 +98,7 @@
 - 流媒体解锁
 - 稳定线路
 
-👉 [纸巾云注册入口](https://okt.getpapercloud.xyz/#/register?code=Qpzmcbue)
+👉 [纸巾云注册入口](https://a.wwaann.com/?s=papercloud)
 
 ---
 
@@ -97,7 +112,7 @@
 - 多地区节点
 - 多设备支持
 
-👉 [呆鹅云注册入口](https://gsg.gosillygoose.online/#/register?code=LnLYGDTC)
+👉 [呆鹅云注册入口](https://a.wwaann.com/?s=gosillygoose)
 
 ---
 
@@ -116,7 +131,7 @@ IPLC专线机场。
 
 - 月付约 ¥5.8 起
 
-👉 [飞天猪注册入口](https://fliggyweba01.cc/#/register?code=6IjPKQRn)
+👉 [飞天猪注册入口](https://a.wwaann.com/?s=fliggycloud)
 
 ---
 
@@ -131,22 +146,8 @@ IPLC专线机场。
 - 全球节点
 - 流媒体支持
 
-👉 [龙猫云注册入口](https://lm04.lmvipaff.net/register?code=A1zuvjVF)
+👉 [龙猫云注册入口](https://a.wwaann.com/?s=totorocloud)
 
----
-
-## 🌟 星辰VPN
-
-全球节点覆盖型服务。
-
-特点：
-
-- 51国家
-- 74节点
-- 高清视频体验
-- 不限设备
-
-👉 [星辰VPN注册入口](https://c.xcvpn.me/#/register?code=TKcDFUEO)
 
 ---
 
@@ -160,7 +161,7 @@ IPLC专线机场。
 - 多国家节点
 - 游戏优化
 
-👉 [FASTLINK注册入口](https://flafflnk01.flaff9.cc/auth/register?code=kJu02mSq)
+👉 [FASTLINK注册入口](https://a.wwaann.com/?s=fastlink)
 
 ---
 
@@ -174,7 +175,7 @@ IPLC专线机场。
 - 稳定线路
 - 支持试用
 
-👉 [红杏注册入口](https://hx666.info/#/register?code=RJbDDPI6)
+👉 [红杏注册入口](https://a.wwaann.com/?s=smjc)
 
 ---
 
@@ -189,7 +190,7 @@ IPLC专线机场。
 - 流媒体解锁
 - 不限设备
 
-👉 [SpeedCAT注册入口](https://webinv02.sc-aff.cc/auth/register?code=sY44X9Ve)
+👉 [SpeedCAT注册入口](https://a.wwaann.com/?s=speedcat)
 
 ---
 
@@ -203,7 +204,7 @@ IPLC专线机场。
 - 全球节点
 - 稳定连接
 
-👉 [Linki Networks注册入口](https://my.faster.pw/#/register?code=gMJkfqad)
+👉 [Linki Networks注册入口](https://a.wwaann.com/?s=smjc)
 
 ---
 
@@ -217,7 +218,7 @@ IPLC专线机场。
 - 2.5Gbps线路
 - 全球节点
 
-👉 [青云梯注册入口](https://qytcc01.qingyunti.pro/register?aff=eIQ45COF)
+👉 [青云梯注册入口](https://a.wwaann.com/?s=qingyunti)
 
 ---
 
@@ -231,7 +232,7 @@ IPLC专线机场。
 - 流媒体支持
 - 个性化线路
 
-👉 [NieRCloud注册入口](https://niercloud.com/#/register?code=qPm9aLRR)
+👉 [NieRCloud注册入口](https://a.wwaann.com/?s=smjc)
 
 ---
 
@@ -245,7 +246,7 @@ IPLC专线机场。
 - 流媒体解锁
 - 多国家节点
 
-👉 [600ML注册入口](https://03c.600mld.cc/#/register?code=Xmcptokj)
+👉 [600ML注册入口](https://a.wwaann.com/?s=smjc)
 
 ---
 
@@ -259,7 +260,7 @@ IPLC专线机场。
 - 多国家节点
 - 流媒体支持
 
-👉 [苏打云注册入口](https://h.sudacloud.top/#/register?code=zkwx66xc)
+👉 [苏打云注册入口](https://a.wwaann.com/?s=smjc)
 
 ---
 
@@ -273,7 +274,7 @@ IPLC专线机场。
 - 音乐解锁
 - 流媒体支持
 
-👉 [Tannel注册入口](https://tannel.xn--6kro9vzxa373b.com/auth/register?code=TVVt)
+👉 [Tannel注册入口](https://a.wwaann.com/?s=smjc)
 
 ---
 
@@ -287,7 +288,7 @@ IEPL高速线路机场。
 - 多国家节点
 - 流媒体支持
 
-👉 [三月七注册入口](https://xn--7gql113q.com/#/register?code=o5LuwmSM)
+👉 [三月七注册入口](https://a.wwaann.com/?s=sanyueqi)
 
 ---
 
@@ -301,7 +302,7 @@ IEPL高速线路机场。
 - 游戏优化
 - 流媒体支持
 
-👉 [瑶瑶专线注册入口](https://yyssr.app/auth/register?code=9UtFYc)
+👉 [瑶瑶专线注册入口](https://a.wwaann.com/?s=smjc)
 
 ---
 
@@ -315,7 +316,7 @@ IEPL高速线路机场。
 - 稳定连接
 - 低成本方案
 
-👉 [狗狗云注册入口](http://msvpn.gougouvpn.xyz:88/index.php#/register?code=R76qd2cO)
+👉 [狗狗云注册入口](https://a.wwaann.com/?s=smjc)
 
 ---
 
@@ -329,7 +330,7 @@ IEPL高速线路机场。
 - 多国家节点
 - 高速线路
 
-👉 [耐思云注册入口](https://nicecloud.io/#/register?code=lkT25V85)
+👉 [耐思云注册入口](https://a.wwaann.com/?s=smjc)
 
 ---
 
@@ -343,7 +344,7 @@ IEPL高速线路机场。
 - 流媒体支持
 - 月付套餐
 
-👉 [Moluo注册入口](https://moluo.fun/#/register?code=gvqlnyDl)
+👉 [Moluo注册入口](https://a.wwaann.com/?s=smjc)
 
 ---
 
@@ -357,7 +358,7 @@ IEPL高速线路机场。
 - Emby资源
 - 多入口线路
 
-👉 [NiceDuck注册入口](https://my.niceduck.io/#/register?code=rEtm90vk)
+👉 [NiceDuck注册入口](https://a.wwaann.com/?s=smjc)
 
 ---
 
@@ -371,7 +372,7 @@ AI优化网络服务。
 - 低延迟线路
 - AI工具优化
 
-👉 [XXAI注册入口](https://xxai.onelink.me/4TP5/6u8koqvm?invite_code=IibxR86Z)
+👉 [XXAI注册入口](https://a.wwaann.com/?s=smjc)
 
 ---
 
